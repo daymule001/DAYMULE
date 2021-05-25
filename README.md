@@ -1,1 +1,1 @@
-It's for mule practive purpose
+It's for mule practice purpose
